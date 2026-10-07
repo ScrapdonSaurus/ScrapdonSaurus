@@ -6,7 +6,7 @@
 - sometimes im a traffic light sometimes im a fish
 - i am aussie
 - i love birds
-- i dont mind any pronouns but im usually she/her
+- i honestly dont mind any pronouns but im usually she/her
 - i am happy to interact unless stated otherwise
 - i like art and blender yay
 
