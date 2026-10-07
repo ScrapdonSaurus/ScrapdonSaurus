@@ -1,4 +1,15 @@
-## Hi there 👋
+## Sup
+
+- I am saurus
+- i am crazy
+- sometimes im a traffic light sometimes im a fish
+- i am aussie
+- i love birds
+- i dont mind any pronouns but im usually she/her
+- i am happy to interact unless stated otherwise
+- i like art and blender yay
+
+
 
 <!--
 **ScrapdonSaurus/ScrapdonSaurus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
