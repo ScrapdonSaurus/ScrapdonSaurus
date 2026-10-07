@@ -1,6 +1,7 @@
 ## Sup
 
 - I am saurus
+- this page is ugly PLEASE look at my strawpage linked below my pfp
 - i am crazy
 - sometimes im a traffic light sometimes im a fish
 - i am aussie
